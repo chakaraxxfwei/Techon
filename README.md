@@ -1,3 +1,3 @@
-# Technical Support
- If you have any questions or Suggestions about the app, you can email us by clicking on feedback in the app Settings. You can also email us directly at：chakaraxxfwei@gmail.com.  
-Enjoy your use.
+# 技术支持
+ 如果你有任何问题，邮箱联系我们，我的邮箱是：leydizdvgzvj@gmail.com，电话是：+491767687649
+ 
